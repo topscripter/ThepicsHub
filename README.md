@@ -1,4 +1,4 @@
-Join our Discord! —> [**Invite**](https://discord.io/thepicshub)
+Join our Discord! —> [__**Invite**__](https://discord.io/thepicshub)
 
 Cracked Scripts from Thepic's Hub
 
